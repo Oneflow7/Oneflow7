@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Oneflow7
+- 👀 I’m interested in computer science
+- 🌱 I’m currently learning 3D printer
